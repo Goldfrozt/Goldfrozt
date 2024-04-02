@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Goldfrozt
+- 👀 I’m interested in app & web development 
+- 🌱 I’m currently learning no code development 
+- 💞️ I’m looking to collaborate on a new application 
+- 📫 How to reach me call +2347045149626 or email me @ emmzychigo@gmail.com 
+- 😄 Pronouns: he, him, his. 
+- ⚡ Fun fact: nothing much just usual.
